@@ -1,1 +1,1 @@
-# zaliczenie
+# zaliczenie Jakub Cendecki
